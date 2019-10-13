@@ -1,4 +1,7 @@
 # hello-world
-permulaan sesuatu yang baru. Hello 2018!
+permulaan sesuatu yang baru. Hello 2019!
 
-Hi, naimi7 here! Beginning in github, I love to learn something new.
+I work on track in learning coding. Strat fresh, learn fresh, may Allah bless.
+Bismillah..
+
+Working hard in learning coding so that I.Allah one day, I will be a comptent researcher.
